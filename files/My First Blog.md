@@ -2,4 +2,4 @@ Not technically my first blog though but the first one in this new setup. I am g
 
 And to write this, my motivation today came from [this blog post](https://pthorpe92.dev/intro/my-story/), What an inspiring story it is wow, I am really surprised of what people rise up from, this guy, the primeagn and everyone who were in a deep hole once and have recovered from there are really inspiring for me, as I am also in a similar situation right now and I am trying to get out of it. 
 
-I am very positive about it happening, I know it very well that I will get it done, it is not a big problem for me. All I need is consistency and 
+I am very positive about it happening, I know it very well that I will get it done, it is not a big problem for me. All I need is consistency and focus, which are the exact things that I lack in life : )
