@@ -1,0 +1,1 @@
+Not technically my first blog thought but the first one in this new setup.
