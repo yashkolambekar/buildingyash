@@ -12,3 +12,6 @@ Health is also something that I have completely ignored in the recent year. I ha
 
 I also feel that I am biting too many pies at the same time, I have a day job, I am preparing for GATE and I am also building my own startup. Although I am not doing great at any of the three, but I am doing these things. Now the dilemma is whether I should put more force all together so that all three things get more energy or I should eliminate something so that the energy gets used in the two things. But to be very honest, I do not want to give up on any of these three. I really don't want to.
 
+So from now onwards, I will minimize the unnecessary things that I do in my day, I will get rid of things that are not important and I will focus on the real things that are going to change my life, or atleast bring a little changes incrementally.
+
+I have made a schedule which blocks 17 hours of my day, let's try to implement it and let's try to get 100% coverage!
